@@ -1,0 +1,77 @@
+# IS:SUE – CONNECT
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I'd lost the light
+I'd lost the way
+絶望のなか "Uhhh Ahhh Ahhh"
+居場所さえ分かんなくて
+同じ瞳をした
+私たちがConnect?
+夢見てBreaking up
+でもNever give it up
+Oh傷ついた脚でDance
+高い壁も
+壊せるわ
+Wow wow oh
+Brighter than stars
+君とScarlet Strings
+強くなってGonna do
+Now We Finally Connect
+(Turn it up)
+You and I Connect
+新たな"ISSUE" yeah
+かつてない異種
+今生まれるConnect
+It's you, I wish, to be born,
+wanna be, wanna stronger
+You and I Connect
+新たな"ISSUE" yeah
+立ち向かうIt's you
+今世界とConnect
+One, two
+数えきれない 夢 叶うGrow up
+過去だけのScene Don't judge me
+I just go, now you know
+We don't need to be raised up
+Shout it loud, Shout it loud
+一瞬でConnect
+心がShout it out
+過去さえSing it out
+Oh見るより見せるわDream
+きっと君と
+同じ感情
+Wow wow oh
+ここからStart
+まだ見ぬ世界へ
+自信あるからGo
+Now We Finally Connect
+(Turn it up)
+You and I Connect
+新たな"ISSUE" yeah
+かつてない異種
+今生まれるConnect
+It's you, I wish, to be born,
+wanna be, wanna stronger
+You and I Connect
+新たな"ISSUE" yeah
+立ち向かうIt's you
+今世界とConnect
+ここからよConnect
+はじまるの Connect
+あの涙 残る傷は Weakness is power
+挫折?批判? Friends of mine now
+Now We Finally Connect
+(Turn it up)
+You and I, Heroes
+新たな"ISSUE" yeah
+かつてない異種
+今生まれるConnect
+It's you, I wish, to be born,
+wanna be, a new Hero
+You and I, Heroes
+新たな"ISSUE" yeah
+立ち向かうIt's you
+今世界とConnect
+```
